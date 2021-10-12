@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @01Noel01
+- 👀 I’m interested in coding/football
+- 🌱 I’m currently learning how to make a discord bot
+- 💞️ I’m looking to collaborate with @Kyran TT-TTG
+- 📫 How to reach me /discord=コノユビトマレ#5063
